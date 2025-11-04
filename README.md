@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlitaVahidkhan/Ulkar Karimova
 - 👀 I’m interested in almost everything when I am in mood
-- 🌱 I’m currently learning programming languages.
+- 🌱 I’m currently working
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
